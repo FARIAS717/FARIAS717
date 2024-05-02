@@ -10,4 +10,4 @@
 
 ## **[@jv.farias__](https://www.instagram.com/jv.farias__/)**
 
-![](https://media1.tenor.com/m/ZmTt-Ari_B4AAAAd/walking-around-jeff.gif)
+![](https://media1.tenor.com/m/HhOUBt9avjYAAAAC/buzzy-laincord.gif)
